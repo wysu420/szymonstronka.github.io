@@ -1,0 +1,2 @@
+# szymonstronka.github.io
+stronica
